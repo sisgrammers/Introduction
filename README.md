@@ -1,1 +1,1 @@
-# Introduction
+![](sislo-removebg-preview.png)
